@@ -6,11 +6,11 @@ Expriment------------------------------The Specific Cases-----------------------
 
 ESAC:
 
-https://github.com/Kayne0401/Safe-Decision-Making/assets/112403512/7e6efa9e-7c61-4943-8018-bb013cf3e1c0
+https://github.com/Kayne0401/Safe-Decision-Making/assets/112403512/7e6efa9e-7c61-4943-8018-bb013cf3e1c0.mp4
 
 SDMF:
 
-https://github.com/Kayne0401/Safe-Decision-Making/assets/112403512/4954df10-ec9c-4bab-93fc-93325fcc315f
+https://github.com/Kayne0401/Safe-Decision-Making/assets/112403512/4954df10-ec9c-4bab-93fc-93325fcc315f.mp4
 
 
 
