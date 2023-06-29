@@ -8,7 +8,13 @@ ESAC:
 
 
 
+https://github.com/Kayne0401/Safe-Decision-Making/assets/112403512/5c16afc1-3794-487d-b39d-cb4d4512e77b
+
+
+
 SDMF:
+
+https://github.com/Kayne0401/Safe-Decision-Making/assets/112403512/0d3b015c-f2b4-43af-8c30-4671ba7bed7a
 
 
 
